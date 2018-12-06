@@ -1,3 +1,1 @@
-# Katy Barnhart
-
 Under construction
